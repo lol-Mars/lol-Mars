@@ -1,3 +1,6 @@
+About Me:
+---------
+
 Hello, my name is Mars.
 i used to be a huge coder, and i make games, scripts, etc.
 well thats all you need to know about me for now!. 
