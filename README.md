@@ -17,3 +17,12 @@ Instagram:  @A_Little_Snitch
 Disocrd:  ? Mars#2055
 
 <3
+
+Featured Projects:
+------------------
+
+(1)  Blooket Hacks, Mods
+
+(2).  Snake games hacks, Mods
+
+(3) random hacks, Mods
